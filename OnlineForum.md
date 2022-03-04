@@ -22,7 +22,7 @@
 
 **Glan:** Which planet did ya come from **@Nolaaa**?
 
-**Nolaaa:** I moved from Zuliqua to America. Quite the difference I must say.
+**Nolaaa:** I moved from Zuliqua to Earth. Quite the difference I must say.
 
 **Kynz:** Oh how cool! Anyone interested in purchasing a bracelet? I have a really nice one that I'm looking to sell.
 
