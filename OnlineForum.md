@@ -1,6 +1,7 @@
 # Online Forum Communications
 
 **Nolaaa:** Hey ya'll! Is anyone getting this?
+
 **Kenny:** Yooo, I got ya your text loud and clear.
 **Glan:** Howdy!! I'm checking out this new chat room. How's everyone doing?
 **Kynz:** 10/10 - working on some plans but not too much otherwise.
