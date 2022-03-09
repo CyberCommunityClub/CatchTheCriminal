@@ -29,3 +29,11 @@
 **Glan:** Potentially. I don't have cash quite yet so give me some time.
 
 **Kynz:** No worries - but looking to sell it fairly quickly so get back to me asap.
+
+# Settings
+  ## People
+  Nolaaa n2thedeloris@yahoo.com
+  Fily pipifili@cepites.com (Planet Cepites)
+  Kynz gothicwonder22@Quvon.com (Planet Quvon)
+  Kenny woodman@riaporr.com (Planet Riaporr)
+  Glan glannyark84@trojan.com
